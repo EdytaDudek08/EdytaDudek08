@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @EdytaDudek08
 - 👀 I’m interested in sport
 - 🌱 I’m currently learning business analyst
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on
 - 📫 How to reach me edudek0803@gmail.com
 
 <!---
